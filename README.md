@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm Amy.  👋
 
 <!--
 **amy34268/amy34268** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
